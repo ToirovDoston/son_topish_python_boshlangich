@@ -1,1 +1,1 @@
-# son_topish_python_boshlangich_loyiha
+# son_topish_python_boshlangich
